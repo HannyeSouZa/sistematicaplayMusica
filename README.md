@@ -1,1 +1,1 @@
-veTRi/6350404520:AAEqc3lp6Lr0d_fP3phyLjL5vqheCjCUo18
+git telegram/te.me/
